@@ -1,0 +1,1 @@
+pisze sobie cos tam
